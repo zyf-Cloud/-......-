@@ -1,4 +1,4 @@
-# 欢迎来到张某的大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大网站
+# 欢迎来到张某的大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大大网站q(≧▽≦q)
 
 
 
@@ -18,7 +18,7 @@
 
 第四人格：Buka（巴卡）（柴圈的）
 
-第五人格：辛巴巴人格（用来发颠的）（疑似丹尼尔）
+第五人格：辛巴巴人格（用来发颠的）（疑似丹尼尔）ψ(｀∇´)ψ
 
 
 
@@ -26,7 +26,7 @@
 
 
 
-我会时常在此网站更新我是UT‘AU小说哦
+我会时常在此网站更新我是UT‘AU小说哦😝😁😎     ヾ(≧▽≦*)o
 
 
 
@@ -40,7 +40,7 @@ AU可以自行查阅（B站有很多）[【一次看个爽/UT同人大合集】 
 
 
 
-给大家推荐一下这个ab柴动画，作者是AlanBecker，B站就有，非常好看（有刀子）
+给大家推荐一下这个ab柴动画，作者是AlanBecker，B站就有，非常好看（有刀子）ヽ(*。>Д<)o゜
 
 
 
@@ -52,7 +52,7 @@ AU可以自行查阅（B站有很多）[【一次看个爽/UT同人大合集】 
 
 ## GAME网页
 
-什么？你想玩我的世界PC端又不敢花钱买？
+什么？你想玩我的世界PC端又不敢花钱买？\(@^0^@)/
 
 这里有网页版（Java）
 
@@ -106,6 +106,18 @@ https://poki.com/zh/g/ragdoll-hit
 
 https://poki.com/zh/g/ragdoll-drop
 
+https://poki.com/zh/g/basketball-legends-2020
+
+https://poki.com/zh/g/basketball-stars
+
+https://poki.com/zh/g/football-legends
+
+https://poki.com/zh/g/football-masters
+
+
+
+
+
 
 
 
@@ -114,11 +126,4 @@ https://poki.com/zh/g/ragdoll-drop
 
 ## 蛋仔官方网址
 
-https://party.163.com
-
-
-
-
-
-
-
+https://party.com
