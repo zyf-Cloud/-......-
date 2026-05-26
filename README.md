@@ -2,7 +2,7 @@
 
 
 
-该网站现版本：  v1.16.6
+该网站现版本：  v1.17.1
 
 
 
@@ -127,3 +127,48 @@ https://poki.com/zh/g/football-masters
 ## 蛋仔官方网址
 
 https://party.163.com
+
+
+
+
+
+## 我本将心向明月
+
+https://www.bilibili.com/video/BV1vPcuzvEVj/?spm_id_from=333.337.search-card.all.click
+
+https://www.bilibili.com/video/BV1B4Gt6rERn/?spm_id_from=333.337.search-card.all.click
+
+
+
+朝为田舍埋头郎
+
+幕登天子宝殿堂
+
+王侯将相本无种
+
+男儿当自强
+
+不是一番寒彻骨
+
+怎来的梅花香
+
+十年窗下无人问
+
+一举成名他名扬
+
+
+
+我本将心单单向月明
+
+奈何那明月却只照沟渠
+
+落花本有意愿随流水去
+
+流水却无心恋落花痴意
+
+看那焚尽孤城寂冷了三生
+
+风华绝代往事不过繁华落尽
+
+
+
