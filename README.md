@@ -2,7 +2,7 @@
 
 
 
-该网站现版本：  v1.16.4
+该网站现版本：  v1.16.6
 
 
 
@@ -126,4 +126,4 @@ https://poki.com/zh/g/football-masters
 
 ## 蛋仔官方网址
 
-https://party.com
+https://party.163.com
